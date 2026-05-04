@@ -66,7 +66,7 @@ Convertirme en un **Cloud Engineer** trabajando de forma remota para empresas in
 
 ## 📫 Contacto
 
-📧 Email: [tucorreo@gmail.com](mailto:olivarespolojeancarlos@gmail.com)
+📧 Email: (mailto:olivarespolojeancarlos@gmail.com)
 💼 LinkedIn: https://linkedin.com/in/jeanolivares
 
 
